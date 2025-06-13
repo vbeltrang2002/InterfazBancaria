@@ -1,0 +1,5 @@
+![ic_logopichincha](https://github.com/user-attachments/assets/154e0aec-3815-4afd-9c8d-d8cefc1199d8)
+![ic_huella](https://github.com/user-attachments/assets/47652993-c821-43e9-a7ba-241885ace697)
+![ic_fondo](https://github.com/user-attachments/assets/3c1f7cfb-5124-4ebd-8e09-9ad4600f5957)
+![Evidencia 2](https://github.com/user-attachments/assets/bb3f23d0-8681-4514-a552-2b59f7f989e2)
+![Evidencia 1](https://github.com/user-attachments/assets/e216ab3e-479e-42ff-bab8-594cb584ac1a)
